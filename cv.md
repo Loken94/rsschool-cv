@@ -6,6 +6,8 @@
 * **Phone:** +998900020332
 * **E-mail:** TitarevFamily1994@gmail.com
 * **Telegram** @Bigby94
+* **Discord** @Tempestus94
+* **Github** Loken94
 ------------------------------
 
 ## About myself
